@@ -1,3 +1,17 @@
+Hier kommt meine Übersetzung des Gedichts:
+
+Das verwundete Tigertier
+Ein Gedicht von Hans Sachsen
+
+26. Juni 1545
+
+1.
+
+Ein Tigertier wohnte in einem Wald,
+in dem es vielerlei Tiere gab.
+Das tapferste unter allen war das Tigertier.
+
+
 Das verwunt tigertier
 In dem kurzen ton Hans Sachsen.
 
